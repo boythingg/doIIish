@@ -4,6 +4,4 @@
 
 *I don't even like telling people my source to be honest, my girlfriend doesn't like hers either.* 
 
-![](https://64.media.tumblr.com/c1bfa07a5b4b6c403752d7a58fab3a82/bb5af280fa6c8e21-6b/s400x600/f3a1014a76541972f9d7a753da2b847955a4936c.gifv)![](https://64.media.tumblr.com/c1bfa07a5b4b6c403752d7a58fab3a82/bb5af280fa6c8e21-6b/s400x600/f3a1014a76541972f9d7a753da2b847955a4936c.gifv)
-
-
+![](https://64.media.tumblr.com/f8c14efcb425d30879b14138a44ea1da/ecd190f3f1288cf4-89/s400x600/341e5e51311a783863aef8b48487302fd232bf22.jpg)
