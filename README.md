@@ -5,5 +5,3 @@ dni if you say "certain alter from a source do not interact ++ doubles do not in
 
 This isn't mine but describes everything I'm too lazy to type out: https://ptsystems2.straw.page/ ^_^
 
-**sys info** we're diagnosed, and I'm the host and we're brainmade heavy that's really all you need to know. people who add every single detail about theirself is weird, like why are you putting negative triggers like someone isn't gonna use that to their advantage.
-
