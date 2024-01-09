@@ -5,5 +5,5 @@
 *I don't even like telling people my source to be honest, my girlfriend doesn't like hers either.* 
 ![](https://blog-imgs-80.fc2.com/e/m/o/emopunker/10274234_270355769816671_5518193573577912676_n.jpg)
 
-https://ptsystems2.straw.page/ ^_^
+This isn't mine but describes everything I'm too lazy to type out: https://ptsystems2.straw.page/ ^_^
 
