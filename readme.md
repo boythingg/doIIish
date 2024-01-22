@@ -1,5 +1,5 @@
 *do not ask **4** source !*
 
-![](https://i.pinimg.com/564x/e1/99/2d/e1992de6db83f91fc2d65e5afeafef0e.jpg)
+![](https://64.media.tumblr.com/3209b7240871bf9e5e615a1cf42c675b/6f095fdd9535926c-b0/s540x810/10e53c6b0b9037bd874e3bd032c3b6ae9ddb8e26.jpg)
 
 This isn't mine but describes everything I'm too lazy to type out: https://ptsystems2.straw.page/ ^_^
