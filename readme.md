@@ -1,5 +1,8 @@
- *do not ask **4** source !*
+ *do not ask **4** source !* also don't use tonetags for me thnxx ^_^
 
 ![](https://64.media.tumblr.com/0483ba681652f2ee8268f092100530ae/87f75cfd7e0bb3f7-61/s640x960/5ffa1c170225b884eb32c5f42c84b3d00037635e.pnj)
 
-meowch
+kins erm what da flip >_<
+1. ) Taffy ( Okegom )
+1. ) Jack Thurlow ( Jack Goes Home )
+3. ) Simon Henriksson ( Cry of Fear )
