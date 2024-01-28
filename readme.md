@@ -1,4 +1,3 @@
-^_^ currently thinking 4 a profile theme so yaa
- 
+> . . . hazbin hotel ++ okegom fandom do not interact
  
 pixel collection in last link
