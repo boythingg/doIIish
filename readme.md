@@ -1,4 +1,4 @@
-> . . . okegom fandom nd self diagnosed systems dni unless I do first
+> . . . okegom fandom nd self diagnosed systems dni (excluding friends and friends of friends :3)
 >
 > 
 extremely annoyed with people saying "doubles dni" double's don't exist you annoying fuck. ☠️ (targeted towards systems)
