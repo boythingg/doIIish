@@ -12,3 +12,5 @@ DID/OSDD *requires* a medical diagnosis for a reason, your DID/OSDD symptoms can
 
 
 pixel collection in last link
+
+2012 creepypasta fan, please do not one up me ^_<
