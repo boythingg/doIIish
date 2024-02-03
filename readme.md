@@ -1,16 +1,9 @@
-> . . . idc who interacts just don't b weird
+> . . . idc who interacts just don't b weird (unless you're anything mentioned below)
 >
 > 
-extremely annoyed with people saying "doubles dni" double's don't exist you annoying fuck. ☠️ (targeted towards systems)
+>extremely annoyed with people saying "doubles dni" double's don't exist you annoying fuck. ☠️ (targeted towards systems)
 
 
  ![](https://64.media.tumblr.com/b847b6b198dfe04517533363c842b6af/eccd2e057b1ed36d-69/s400x600/8a162fa6539b6ccb30e31b9bb6a8ae9d3375d2bb.gifv)
-
-for the love of god stop saying you're a system when you're not even medically recognized, just say "*suspecting did/osdd*".
-
-DID/OSDD *requires* a medical diagnosis for a reason, your DID/OSDD symptoms can be caused by MANY different disorders and mental illness. BPD, OCD, PTSD (the list goes on, it's not an easy to diagnosis disorder like anxiety or depression) all have to  be tested for as well during your testing for DID.
-
-
-pixel collection in last link
-
-2012 creepypasta fan, please do not one up me ^_<
+ 
+> https://did-research.org/ , https://systemfaq.carrd.co/ ( systemtok/systemcord/systemtown do not interact )
