@@ -8,5 +8,3 @@
  
 > https://did-research.org/ , https://systemfaq.carrd.co/ ( systemtok/systemcord/systemtown do not interact )
 >
-
-> wip btw https://pluralkit.xyz/s/rcerv
