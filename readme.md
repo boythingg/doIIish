@@ -1,4 +1,4 @@
-> .  . . "NOT A COSPLAY" yes it is? if you're wearing the same clothes as a fictional character same hair same everything it's a cosplay.. you're not a fictional character fictives aren't the actual character.. 
+> .  . . systems on ponytown try not to spread misinformation challenge go ! (*EXTREMELY HARD*)
 
 
  ![](https://i.imgur.com/Me1yLkl.png)
