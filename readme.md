@@ -5,4 +5,4 @@
  
 
 >
-> systemtok dni
+> other systems, do not interact.
