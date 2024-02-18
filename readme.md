@@ -4,7 +4,7 @@
  ![](https://i.imgur.com/JeDY9kU.png)
  
 
-> i know 0 tjhings about sonico... heh...!
+> i know literally nothing about sonico
 >
 > 
 > #1 ponytown system hater! ! !
