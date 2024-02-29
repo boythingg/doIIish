@@ -1,4 +1,4 @@
-
+feel free to link the did rentry , you don't gotta ask
 ![](https://i.imgur.com/RA6oBMN.png)
 
 if you want a custom rentry, yhm fill this out (i liek making rentry's)
