@@ -5,4 +5,4 @@ https://rentry.co/didinponytown
 
 ![](https://i.imgur.com/RSBJ47o.png)
 
-i relaly really reall reallyl realllyllylylylyl like supermariologan i've been a fan since 2013 :3
+i relaly really reall reallyl realllyllylylylyl like supermariologan i've been a fan since 2013!! don't one-up me on this I will kil lyou in your sleep and no one will ever find your body 
