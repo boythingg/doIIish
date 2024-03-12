@@ -7,4 +7,4 @@ https://rentry.co/didinponytown
 
 I really really really like supermariologan, I've been a fan since 2013 I do not like when people try and one-up me on this.
 
-zero day fans dni, a lot of you are weird as fuck
+zero day fans dni, a lot of you are weird as fuck, also pls don't copy or take inspo from my ponies unless we're friends/close
