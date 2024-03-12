@@ -7,4 +7,4 @@ https://rentry.co/didinponytown
 
 I really really really like supermariologan, I've been a fan since 2013 I do not like when people try and one-up me on this.
 
-also pls don't copy or take inspo from my ponies unless we're friends/close
+also pls don't copy or take inspo from my ponies unless we're [friends/close](https://rentry.co/closefriendslist)
