@@ -17,7 +17,7 @@ callout... on me... *sighs* https://rentry.co/firebrandcallout
 
 ![](https://i.imgur.com/SsMnTjQ.png)
 
-I really really really like supermariologan, I've been a fan since 2013 I do not like when people try and one-up me on this.
+I really really really like supermariologan, I've been a fan since *2013* I do not like when people try and one-up me on this.
 ___
 
 ![](https://64.media.tumblr.com/e5bf3e3340ee21c5083a976e9c95e1b6/a2aa2902940d7ed4-04/s2048x3072/2bb4ec9758665a1d925983993da28aa820426e12.pnj)
