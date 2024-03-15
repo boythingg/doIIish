@@ -12,3 +12,5 @@ I really really really like supermariologan, I've been a fan since 2013 I do not
 also pls don't copy or take inspo from my ponies unless we're [friends/close](https://rentry.co/closefriendslist)
 
 callout... on me... *sighs* https://rentry.co/firebrandcallout
+
+https://rentry.co/kassiecallout CALLOUT ON KASSIE.... read...@!!!444
