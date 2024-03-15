@@ -1,5 +1,3 @@
-. . .
-
 ___
 
 CALLOUTS (*2 jokes*)
@@ -18,5 +16,5 @@ I really really really like supermariologan, I've been a fan since *2013* I do n
 also pls don't copy or take inspo from my ponies unless we're [friends/close](https://rentry.co/closefriendslist)
 
 _____
-. . .
+
 
