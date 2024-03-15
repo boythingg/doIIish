@@ -3,7 +3,7 @@ feel free to link this [rentry](https://rentry.co/didinponytown
 
 ___
 
-CALLOUTS (2 jokes)
+CALLOUTS (*2 jokes*)
 
 (REAL) [cos-callout](https://rentry.co/imslimshady) cos you are so round you have your own gravitational pull
 
