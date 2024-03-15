@@ -15,3 +15,5 @@ callout... on me... *sighs* https://rentry.co/firebrandcallout
 I really really really like supermariologan, I've been a fan since *2013* I do not like when people try and one-up me on this.
 
 also pls don't copy or take inspo from my ponies unless we're [friends/close](https://rentry.co/closefriendslist)
+
+>my entire page is a wip atp
