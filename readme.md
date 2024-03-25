@@ -1,5 +1,5 @@
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀stop copying my ponies ⠀⠀⠀⠀⠀. .⠀![](https://i.imgur.com/CweKHGA.png) .   .
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ entire page is a wip, sadly ; _ :⠀⠀stop copying my ponies ⠀⠀⠀⠀⠀. .⠀![](https://i.imgur.com/CweKHGA.png) .   .
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀[didonline](https://rentry.co/didonline)  . .⠀[system rentry](https://rentry.co/hellgaze)
