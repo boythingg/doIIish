@@ -1,1 +1,1 @@
-come back later for a fully finished github ^_^!
+thinking of a rentry theme, cum back later
