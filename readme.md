@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/5ace577f17414a23d195376803f4adb3/f757a21efeac0850-11/s640x960/21bffd1e4d7d4023c22a46977a323fc379718818.pnj)⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/5ace577f17414a23d195376803f4adb3/f757a21efeac0850-11/s640x960/21bffd1e4d7d4023c22a46977a323fc379718818.pnj)⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.imgur.com/l2Bzktu.gif)
 ⠀![](https://www.spriters-resource.com/resources/sheet_icons/198/200785.png?updated=1688673707)  ⠀⠀⠀⠀⠀⠀⠀⠀  ![](https://i.imgur.com/xO1WVdv.gif)₊˚ෆ
 
