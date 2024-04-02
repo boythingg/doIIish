@@ -9,5 +9,5 @@ ____
 
 
 ```descom
- > until further notice my guestbook will be closed, if you would like to talk my discord is zupermariologan !
+ > systems dni, unless i've interacted with you first.
 ```
