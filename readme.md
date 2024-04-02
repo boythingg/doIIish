@@ -1,1 +1,1 @@
-extremely depressed what the fuck
+i hate you bipolar depression
