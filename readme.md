@@ -1,5 +1,5 @@
 ```descom
- > please write in my guestbook o_< (the name is kind of funny when my profile and the image down there is of a the vkei style
+ > please write in my guestbook o_<
 ```
 
 ____
