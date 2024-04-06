@@ -3,8 +3,8 @@
 ```
 
 ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
-⠀⠀⠀⠀![New Project (7)](https://github.com/scenemo/scenemo/assets/132171598/379c3546-aed5-4e11-8916-6ab09a534015)
- [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=novatorem&show_offline=false&background_color=61526f&interchange=false&bar_color=8f51cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+⠀⠀⠀⠀![New Project (7)](https://github.com/scenemo/scenemo/assets/132171598/379c3546-aed5-4e11-8916-6ab09a534015) 
+  [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=novatorem&show_offline=false&background_color=61526f&interchange=false&bar_color=8f51cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ____
  $\text{\color{#291845}{< <}}$⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ $\text{\color{#291845}{a little information + links}}$
 ____
