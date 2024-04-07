@@ -26,7 +26,7 @@ gonna rework on this soon i swear
 
 ![imageedit_2_7640933794](https://github.com/scenemo/scenemo/assets/132171598/2ff06a70-2968-4a72-bd99-d9a93a7ae22c)
  [𝚐𝚞𝚎𝚜𝚝𝚋𝚘𝚘𝚔](https://sickeningboy.123guestbook.com/)$\text{\color{#291845}{..}}$ ![imageedit_3_7826231482](https://github.com/scenemo/scenemo/assets/132171598/ae18a32f-25a9-4c1a-ad21-ca721c7650c1)
-[𝚖𝚢 𝚛𝚎𝚗𝚝𝚛𝚢](https://rentry.co/jeff)$\text{\color{#291845}{. .}}$ [𝚍𝚒𝚍 𝚛𝚎𝚗𝚝𝚛𝚢](https://rentry.co/DlD) $\text{\color{#291845}{not a lot of information.}}$
+[𝚖𝚢 𝚛𝚎𝚗𝚝𝚛𝚢](https://rentry.co/jeff)$\text{\color{#291845}{. .}}$
 
 
 ``` descom
