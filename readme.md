@@ -1,4 +1,5 @@
-(gonna remake this part i swear)
+
+![](https://komarev.com/ghpvc/?username=scenemo)
 ```descom
  > please write in my guestbook o_<
 ```
