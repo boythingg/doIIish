@@ -9,10 +9,10 @@
 
 
 
-⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀![imageedit_7_3095136148](https://github.com/scenemo/scenemo/assets/132171598/2769e0f7-e932-4c4c-8d6f-0b182047d91c)
+⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![imageedit_7_3095136148](https://github.com/scenemo/scenemo/assets/132171598/2769e0f7-e932-4c4c-8d6f-0b182047d91c)
 
  $\text{\color{#291845}{< <}}$⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ $\text{\color{#291845}{a little information + links}}$
-![imageedit_5_8381626708](https://github.com/scenemo/scenemo/assets/132171598/e3b5016e-81c7-43db-a8e2-e2a6a81edeb4)
+
 
 
 
