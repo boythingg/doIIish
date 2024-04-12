@@ -18,5 +18,5 @@ gonna rework on this soon i swear
 
 
 ``` descom
- > systems dni, unless i've interacted with you first.
+ > systems dni unless we're already friends, or friends of friends.
 ```
