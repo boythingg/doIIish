@@ -1,4 +1,5 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![As8XzXC (2) (3)](https://github.com/scenemo/scenemo/assets/132171598/96cddee1-b020-43cf-a692-efa148ec844b)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![yo1w4t](https://github.com/scenemo/scenemo/assets/132171598/6dc062a0-d518-45e6-918d-dd875ca2c218)
+
 ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
   ⠀⠀![chrome_EU8TFgpORg (11)](https://github.com/scenemo/scenemo/assets/132171598/4185aa6e-3615-49ac-b0a3-ce54a3ba3234)
 
@@ -8,9 +9,5 @@
 
 [𝚐𝚞𝚎𝚜𝚝𝚋𝚘𝚘𝚔](https://sickeningboy.123guestbook.com/)$\text{\color{#291845}{..}}$
  [𝚖𝚢 𝚛𝚎𝚗𝚝𝚛𝚢](https://rentry.co/jeff)$\text{\color{#291845}{. .}}$
-![As8XzXC (2) (3)](https://github.com/scenemo/scenemo/assets/132171598/96cddee1-b020-43cf-a692-efa148ec844b)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![yo1w4t](https://github.com/scenemo/scenemo/assets/132171598/6dc062a0-d518-45e6-918d-dd875ca2c218)
 
-
-``` descom
- > systems dni unless we're already friends, or friends of friends.
-```
