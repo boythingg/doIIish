@@ -1,7 +1,7 @@
 gonna rework on this soon i swear
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=scenemo)
 ```descom
- > please write in my guestbook o_<
+ > please write in my guestbook o_< ( also if you're gonna copy my ponies atleast credit me or smth
 ```
 
 
