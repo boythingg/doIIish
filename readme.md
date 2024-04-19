@@ -1,8 +1,9 @@
 remaking [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=novatorem&show_offline=false&background_color=7774a4&interchange=false&bar_color=7accff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://fontmeme.com/temporary/3ae4b1f824d098e4bc0f3daaf1cb21d1.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![68747470733a2f2f666f6e746d656d652e636f6d2f74656d706f726172792f33616534623166383234643039386534626330663364616166316362323164312e706e67](https://github.com/scenemo/scenemo/assets/132171598/ff279801-7194-438f-b9f3-7aa6efb9687c)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![c604e7ac2761e7b5f073f984b52c87b5 (1)](https://github.com/scenemo/scenemo/assets/132171598/ec82afc1-8dc2-4ea3-9187-d5328c435aa4)
+
 
 
 
