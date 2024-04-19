@@ -5,7 +5,7 @@ remaking [![spotify-github-profile](https://spotify-github-profile.vercel.app/ap
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![image](https://github.com/scenemo/scenemo/assets/132171598/f2211420-554d-4ad1-a097-3cc6f029ac87)](https://rentry.co/jeff)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/scenemo/scenemo/assets/132171598/2d7de76c-50f5-4142-9de7-2cc79b0c8955)    ⠀⠀![image](https://github.com/scenemo/scenemo/assets/132171598/fd6a386b-b97c-4497-a695-bd388666e41d)   ⠀⠀ ![image](https://github.com/scenemo/scenemo/assets/132171598/1863e320-f599-4b8e-84be-59378b002bc8)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![image](https://github.com/scenemo/scenemo/assets/132171598/2d7de76c-50f5-4142-9de7-2cc79b0c8955)](https://rentry.co/disordertown)    ⠀⠀[![image](https://github.com/scenemo/scenemo/assets/132171598/fd6a386b-b97c-4497-a695-bd388666e41d)](https://rentry.co/jeffreyhoard)   ⠀⠀ [![image](https://github.com/scenemo/scenemo/assets/132171598/1863e320-f599-4b8e-84be-59378b002bc8)](https://rentry.co/spankies)
 
 
 
