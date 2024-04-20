@@ -1,5 +1,6 @@
 ![New Project (10)](https://github.com/scenemo/scenemo/assets/132171598/ba7cde41-2dab-46ef-8f41-7b1aa8d61c70)
-![New Project (12)](https://github.com/scenemo/scenemo/assets/132171598/1741d188-00bb-4d98-a2a2-b724ff02a76c)
+![New Project (7)](https://github.com/scenemo/scenemo/assets/132171598/564ab58d-4bee-474f-8968-52c1a84f62bb)
+
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![](https://i.imgur.com/acAGn9b.png)](https://rentry.co/jeff)⠀⠀
