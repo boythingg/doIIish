@@ -2,7 +2,7 @@
 
 
 
-THIS IS A WIP
+github is a wip for now and so is the rentry
 https://rentry.co/jeffthekiIIer
 https://pronouns.cc/@jeffthekiller
 https://rentry.co/disordertown
