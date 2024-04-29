@@ -15,7 +15,7 @@ https://rentry.co/jeffthekiIIer ( MAIN RENTRY )
 https://pronouns.cc/@jeffthekiller ( KIN LIST ) 
 
 
-https://rentry.co/disordertown ( WIP )
+https://rentry.co/didsystem ( WIP )
 
 
 https://rentry.co/jeffzakiller ( MY JEFF THE KILLER URLS )
