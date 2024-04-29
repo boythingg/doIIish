@@ -9,7 +9,7 @@ Fell in love out of first sight She don't smoke but she using me like a parasite
 github is a wip for now and so is the rentry
 
 
-https://rentry.co/jeffthekiIIer ( MAIN RENTRY )
+https://rentry.co/jeffreywoods ( MAIN RENTRY )
 
 
 https://pronouns.cc/@jeffthekiller ( KIN LIST ) 
