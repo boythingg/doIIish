@@ -1,6 +1,8 @@
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![8108751b3fe6a9c-moshed-04-29-12-17-29](https://github.com/jeffthekiIIer/jeffthekiIIer/assets/132171598/d7a652e2-abd9-4d82-8661-4bb093b6831a)
 
-met her in the club last night, shawty i don't rlly wanna fight i jsut wan u by my side ;3
+
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.imgur.com/hBPa00u.png)
 
 Fell in love out of first sight She don't smoke but she using me like a parasite
