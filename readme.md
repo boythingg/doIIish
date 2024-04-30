@@ -6,24 +6,7 @@
 Fell in love out of first sight She don't smoke but she using me like a parasite
 
 
-github is a wip for now and so is the rentry
+github is a wip for now
 
 
-https://rentry.co/jeffreywoods ( MAIN RENTRY )
-
-
-https://pronouns.cc/@jeffthekiller ( KIN LIST ) 
-
-
-https://rentry.co/didsystem ( WIP )
-
-
-https://rentry.co/jeffzakiller ( MY JEFF THE KILLER URLS )
-
-
-https://rentry.co/jeffreyhoard ( REGULAR HOARD )
-
-https://rentry.co/projectionlink ( PROJECTION LINK )
-
-
-https://jeffthekiller.123guestbook.com/ ( GUESTBOOK )
+https://rentry.co/allofmylinks ( DIRECTORY )
