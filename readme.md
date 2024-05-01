@@ -7,6 +7,3 @@ Fell in love out of first sight She don't smoke but she using me like a parasite
 
 
 github is a wip for now
-
-
-https://rentry.co/allofmylinks ( DIRECTORY )
